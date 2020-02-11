@@ -1,0 +1,1 @@
+# Hotbar-Pets-Translated
